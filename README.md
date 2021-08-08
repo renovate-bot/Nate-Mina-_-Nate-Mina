@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @purecomp
 - 👀 I’m interested in ... Building Computers
-- 🌱 I’m currently learning ... Java script among many other things
+- 🌱 I’m currently learning ... Java script, C# among many other things
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
