@@ -18,9 +18,4 @@
 -   GET $20 BUCKS CREDIT ON YOUR OWN BEACONS ✨[HERE](https://beacons.ai/signup?c=p_c)✨
       -
 
-
-### Thanks.
-
- Nathaniel Mina
- 
-Email: Nate@Purecomp.net
+### Thanks
