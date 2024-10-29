@@ -5,23 +5,23 @@
 # Hi there 👋
 
 - 👋 I’m Nathaniel Mina here **@Nate-Mina**
-- 👀 I’m interested in: My Business ✨[Pure Computers](https://www.PureComp.Net)✨, Building Computers, learning to code, Philosophy, etc
-- 🌱 I’m currently learning: Python, C#, Business Marketing for my Business [(PC)](https://P-C.live) among many other things
-- 💞️ I’m looking to collaborate on business marketing. philosophy, you name it. Just contact me. Don't be shy. You should check out my [beacons](https://p-c.live/aboutme). It beats the hell out of LinkTree. and for sharing socials.
-  [Facebook](https://facebook.com/natemina), [Insta](https://www.instagram.com/nates.techtips/), [threads](https://www.threads.net/@nates.techtips) [LinkedIN](https://www.linkedin.com/in/natestechlinks/)
+- 👀 I’m interested in: My Business ✨[Pure Computers](https://facebook.com/purecompr)✨, Building Computers, learning to code, Philosophy, etc
+- 🌱 I’m currently learning: Python, C#, Business Marketing for my Business [(PC)](https://beacons.ai/P_C) among many other things
+- 💞️ I’m looking to collaborate on business marketing. philosophy, you name it. Just contact me. Don't be shy. You should check out my [beacons](https://beacons.ai/aboutme). It beats the hell out of LinkTree. and for sharing socials.
+  [Facebook](https://facebook.com/natemina), [Insta](https://www.instagram.com/nates.techtips/), [TOK](https://www.tiktok.com/Dom-I-NATE), [threads](https://www.threads.net/@nates.techtips) [LinkedIN](https://www.linkedin.com/in/natestechlinks/)
 
 
 #  IF YOU DIDENT READ ABOVE,  
 
  Pure Computers'
- [Links](https://p-c.live/)
+ [Links](https://beacons.ai/P_C/)
    
 -   GET $20 BUCKS CREDIT ON YOUR OWN BEACONS ✨[HERE](https://beacons.ai/signup?c=p_c)✨
 ###
 Thanks
 Nathaniel M,
 
- CEOwner@[Pure Computers](https://www.PureComp.net)
+ CEOwner@[Pure Computers](https://www.PureComp.net), [PuCo's Facebook](https://facebook.com/purecompr)
 
 
 ---
