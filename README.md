@@ -9,7 +9,7 @@
 - 🌱 I’m currently learning: Python, C#, Business Marketing for my Business [(PC)](https://beacons.ai/P_C) among many other things
 - 💞️ I’m looking to collaborate on business marketing. philosophy, you name it. Just contact me. Don't be shy. You should check out my [beacons](https://beacons.ai/aboutme). It beats the hell out of LinkTree. and for sharing socials.
   [Facebook](https://facebook.com/natemina), [Insta](https://www.instagram.com/dom.i_nate/), [TOK](www.tiktok.com/@dom-i-nater), [threads](https://www.threads.net/@dom-i-nate) [LinkedIN](https://www.linkedin.com/in/natestechlinks/)
-
+### **[Follow me on LinkedIn](https://www.linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=dom-i-nate)**
 
 #  IF YOU DIDENT READ ABOVE,  
 
