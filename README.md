@@ -3,7 +3,7 @@
 ### CEO & Founder, Pure Computers | Mechanical Engineer | Systems Architect
 
 Location: Pittsford & Rochester, NY  
-Email: nate@dom-i-nate.pro | Website: [Pure Computers](https://www.PureComp.Net)
+Email: nate@purecomp.onmicrosoft.com | Website: [Pure Computers](https://www.PureComp.Net)
 
 ---
 
